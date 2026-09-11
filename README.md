@@ -7,4 +7,5 @@
 $\color{#fff763}{\text{ DNI extreme typing quirk unless friends.}}$<br>
 $\color{#48bd6b}{\text{ ╯✦ Dry texting (never talk that much)}}$
 
-<p align=center> ◡★ . sign my atabook and strawpage . 
+ <p align=center><img src="https://autism.crd.co/assets/images/gallery01/eaf305a3_original.gif?v=d6547f5c">
+<p align=center> $\color◡★ . sign my atabook and strawpage . 
