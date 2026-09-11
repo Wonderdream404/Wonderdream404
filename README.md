@@ -1,1 +1,1 @@
-$\color{#fff763}{\text{"𝚝𝚑𝚎𝚛𝚎 𝚒𝚜 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚠𝚑𝚘 𝚌𝚊𝚛𝚎𝚜 𝚊𝚋𝚘𝚞𝚝 𝚢𝚘𝚞. . . "}}$ 
+ $\color{#fff763}{{ʚ}}$ <img src="https://files.catbox.moe/kjqgo1.gif"> $\color{#fff763}{\text{"there is someone who cares about you" ɞ }}$ 
