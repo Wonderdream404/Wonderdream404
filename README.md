@@ -1,3 +1,5 @@
+<p align=center><img src="https://wilardo.crd.co/assets/images/gallery03/e27b534f_original.gif?v=0e33c295">
+
 <P align=Center> <a href="https://hits.sh/github.com/Wonderdream404/"><img alt="Hits" src="https://hits.sh/github.com/Wonderdream404.svg?style=plastic&label=Mantis&color=ed9ee1&labelColor=f3eb77"/></a>
 
 <p align=center> $\color{#48bd6b}{{ʚ}}$ <img src="https://files.catbox.moe/kjqgo1.gif"> $\color{#48bd6b}{\text{"there is someone who cares about you" ɞ }}$
