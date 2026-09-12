@@ -18,6 +18,7 @@ $\color{#48bd6b}{\text{ ╯✦ Dry texting (never talk that much)}}$
  <a href=https://fish-aero.straw.page>frutiger aero straw</a>
  <p align=center><img src="https://autism.crd.co/assets/images/gallery01/eaf305a3_original.gif?v=d6547f5c">
 <br>
-  $\color{#fff763}{\text{✦╰ . Others : }}$
-<p align=center><a href=https://pronouns.cc/@Fishpaler>pronouns.Cc</a>
+ <sub>$\color{#fff763}{\text{✦╰ . Others : }}$ </sub>
+<p align=center><a href=https://pronouns.cc/@Fishpaler>pronouns.Cc</a> ✦
+ <a href=https://rentry.co/gn6dmmgw>Rentry</a>
 <p align=Center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
