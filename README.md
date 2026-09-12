@@ -11,6 +11,10 @@
  <br>
 $\color{#fff763}{\text{ DNI extreme typing quirk unless friends.}}$<br>
 $\color{#48bd6b}{\text{ ╯✦ Dry texting (never talk that much)}}$
+ <br>
+$\color{#fff763}{\text{ Noob main! in Pupi Midnight Munchies!!}}$
+<br>
+$\color{#48bd6b}{\text{ hyperfixation fandoms!! ✦}}$
 
  <p align=center><img src="https://autism.crd.co/assets/images/gallery01/eaf305a3_original.gif?v=d6547f5c">
 <p align=center> $\color{#ff66ed}{\text{◡★ . sign my atabook and strawpage . }}$
