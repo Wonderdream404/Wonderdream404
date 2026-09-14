@@ -9,8 +9,8 @@
 
 <p align=center><img src="https://files.catbox.moe/qczse3.gif"> $\color{#ff66ed}{\text{╯Before you follow me I have did system and ADHD.╰ cuddle me if you want}}$ 
  <br>
-$\color{#fff763}{\text{ DNI extreme typing quirk unless friends.}}$<br>
-$\color{#48bd6b}{\text{ ╯✦ Dry texting (never talk that much)}}$
+$\small\color{#fff763}{\text{ DNI extreme typing quirk unless friends.}}$<br>
+$\small\color{#48bd6b}{\text{ ╯✦ Dry texting (never talk that much)}}$
  <br>
 $\color{#ff66ed}{\text{ Noob main! in Pupi Midnight Munchies!!}}$ </p>
 <div align=center>𓏲 . hyperfixation fandoms!!✦ <br> 
