@@ -25,5 +25,6 @@ Pupi midnight munchies, Depth spelunking, Confinement, Doors <br>
 <br>
  <sub>$\color{#fff763}{\text{✦╰ . Others : }}$ </sub>
 <p align=center><a href=https://pronouns.cc/@Fishpaler>pronouns.Cc</a> ✦
- <a href=https://rentry.co/gn6dmmgw>Rentry</a>
+ <a href=https://rentry.co/gn6dmmgw>Rentry</a> ✦
+<a href=https://listography.com/4169721039?m=0580652416>listography</a>
 <p align=Center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
