@@ -29,4 +29,7 @@ $\small\color{#48bd6b}{\text{(four of them are roblox fandom and comfort fandom)
 <p align=center><a href=https://pronouns.cc/@Fishpaler>pronouns.Cc</a> ✦
  <a href=https://rentry.co/gn6dmmgw>Rentry</a> ✦
 <a href=https://listography.com/4169721039?m=0580652416>listography</a>
-<p align=Center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
+<p align=Center> 
+$\small\color{#ff66ed}{\text{check my listography! if you want to know my fandoms or other!}}$
+ <br>
+ <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
