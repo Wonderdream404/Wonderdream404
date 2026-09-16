@@ -35,7 +35,8 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
  <br>
 
 <details><summary> 🌻 special sunflowers : </summary>
- @Foret-Noire @ </details>
+ <a href="https://github.com/Foret-Noire">Foret -Noire</a> 
+ @</details>
  <p align=center><img
                            src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
 
