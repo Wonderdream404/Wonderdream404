@@ -1,6 +1,7 @@
 <img src="https://files.catbox.moe/mgibhw.jpg">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+display&pause=1000&color=F7D72D&center=true&width=435&lines=+sunflowers+are+beautiful+flowers.)](https://git.io/typing-svg)
+
 <p align=Center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
 <br>
 <p align=center><img src="https://wilardo.crd.co/assets/images/gallery03/e27b534f_original.gif?v=0e33c295" width="300" height="300"> </p>
@@ -32,5 +33,9 @@ $\small\color{#48bd6b}{\text{(four of them are roblox fandom and comfort fandom)
 <p align=Center> 
 $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandoms or other!}}$
  <br>
- <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
+
+<details><summary> 🌻 special sunflowers : </summary>
+ @Foret-Noire @
+ <p align=center><img
+                           src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
 
