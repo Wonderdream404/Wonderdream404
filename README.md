@@ -28,7 +28,7 @@ $\small\color{#48bd6b}{\text{(four of them are roblox fandom and comfort fandom)
 <br>
  <sub>$\color{#fff763}{\text{✦╰ . Others : }}$ </sub>
 <p align=center><a href=https://pronouns.cc/@Fishpaler>pronouns.Cc</a> ✦
- <a href=https://rentry.co/gn6dmmgw>Rentry(rody themed!)</a> ✦
+ <a href=https://rentry.co/edgzaz6v>Rentry(vampnoob themed)</a> ✦
 <a href=https://listography.com/4169721039?m=0580652416>listography</a> ✦
 <a href=https://github.com/Wonderdream404/Special-sunflowers/blob/main/README.md>special sunflowers🌻 (friends)</a>
 <p align=Center> 
