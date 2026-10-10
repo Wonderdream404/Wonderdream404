@@ -33,6 +33,9 @@ $\small\color{#48bd6b}{\text{(four of them are roblox fandom and comfort fandom)
 <a href=https://github.com/Wonderdream404/Special-sunflowers>special sunflowers🌻 (friends)</a> 
  <p align=Center> 
 $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandoms or other!}}$
+  <br>
+<p align=center>$\small\color{#fff763}{\text{ ✦. Information : }}$
+
  <a href=https://invite-helper-info.straw.page>inviter helper info</a>
 
   <br>
