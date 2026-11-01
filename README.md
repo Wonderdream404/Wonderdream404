@@ -38,7 +38,8 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
 
  <a href=https://invite-helper-info.straw.page>inviter helper info</a>
 
-<p align=center> nomination
+nomination! 
+<br>
  [pt-everypony](https://github.com/pt-everypony) 
 
 <br>
