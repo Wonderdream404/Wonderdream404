@@ -39,6 +39,8 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
  <a href=https://invite-helper-info.straw.page>inviter helper info</a>
 
 nomination!
+<br> 
+
  [pt-everypony](https://github.com/pt-everypony) (pony town yveltal!) 
 <Img src="https://files.catbox.moe/n5l8de.jpg" width="600" height="50"> 
 
