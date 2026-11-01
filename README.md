@@ -40,7 +40,7 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
 
 nomination! 
 <br>
- [pt-everypony](https://github.com/pt-everypony) as pony town yveltal! 
+ [pt-everypony](https://github.com/pt-everypony) (pony town yveltal!) 
 
 <br>
  <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
