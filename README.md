@@ -39,7 +39,7 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
  <a href=https://invite-helper-info.straw.page>inviter helper info</a>
 
 <p align=center> nomination
-   @Pt-everypony
+ [@pt-everypony](https://github.com/pt-everypony) 
 
 <br>
  <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
