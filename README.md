@@ -44,6 +44,8 @@ nomination!
  [pt-everypony](https://github.com/pt-everypony) (pony town yveltal!) 
 <Img src="https://files.catbox.moe/n5l8de.jpg" width="600" height="50"> 
 [ponytowns-rewards](https://github.com/Ponytowns-rewards) (pony town yveltal!) 
+<Img src="https://imagepaste.org/v/w689pjd3.jpg" width="600" height="50">
+
 <br>
  <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
 
