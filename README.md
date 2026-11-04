@@ -43,6 +43,7 @@ nomination :
 
 [ʚPony town yveltal(Pt-everypony)ɞ](https://github.com/pt-everypony)
 [ʚpony town yveltal(ponytowns-rewards)ɞ](https://github.com/Ponytowns-rewards) 
+[Pony town xerneas(daggerstruckmage](https://github.com/daggerstruckmage) 
   
 
  <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
