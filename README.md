@@ -41,8 +41,8 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
 
 nomination : 
 
-[ʚPony town yveltal(Pt-everypony)ɞ](https://github.com/pt-everypony)
-[ʚpony town yveltal(ponytowns-rewards)ɞ](https://github.com/Ponytowns-rewards) 
+[ʚPony town yveltal(Pt-everypony)ɞ](https://github.com/pt-everypony) . ✦ . 
+[ʚpony town yveltal(ponytowns-rewards)ɞ](https://github.com/Ponytowns-rewards) . ✦ . 
 [Pony town xerneas(daggerstruckmage](https://github.com/daggerstruckmage) 
   
 
