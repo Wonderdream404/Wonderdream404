@@ -36,15 +36,17 @@ $\small\color{#ff66ed}{\text{check my listography! if you want to know my fandom
   <br>
 <p align=center>$\small\color{#fff763}{\text{ ✦. Information : }}$
 
- <a href=https://invite-helper-info.straw.page>inviter helper info</a>
+ <a href=https://invite-helper-info.straw.page>inviter helper info</a> 
+ </p>
 
+<details>
+<summary>nomination</summary>
 
-nomination : 
+* [ʚPony town yveltal(Pt-everypony)ɞ](https://github.com/pt-everypony) . ✦ . 
+* [ʚpony town yveltal(ponytowns-rewards)ɞ](https://github.com/Ponytowns-rewards) . ✦ . 
+* [Pony town xerneas(daggerstruckmage](https://github.com/daggerstruckmage) 
 
-[ʚPony town yveltal(Pt-everypony)ɞ](https://github.com/pt-everypony) . ✦ . 
-[ʚpony town yveltal(ponytowns-rewards)ɞ](https://github.com/Ponytowns-rewards) . ✦ . 
-[Pony town xerneas(daggerstruckmage](https://github.com/daggerstruckmage) 
-  
+</details>
 
  <p align=center><img src="https://wilardo.crd.co/assets/images/gallery25/9efa471e_original.gif?v=0e33c295" width="500" height="100"></p>
 
